@@ -1,5 +1,1 @@
-YO NIFFO NIFFO NIFFO BEDANKT DAT JE ME VIRUS HEBT GEDOWNLOAD JOEJOE
-
-beter fix je me website snel a niffo anders komt sinterklaas je geen cadeautjes meer brengen. niffo.
-
-ik wil mijn plaatje aan de linkerkant hebben anders zijn we geen vrienden meer >:D
+Ik wil dat je opdracht 3 download en dat het plaatje dat momenteel zich rechtsonderin bevind links naast de tekst komt. Ook wil ik dat de resolutie niet veranderd. Succes :)
