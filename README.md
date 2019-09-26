@@ -7,8 +7,8 @@ Nou ik helemaal blij woohoo.
 
 Ohja hier een random tabel ofso omdat ik te weinig dingen had haha vet leuk.
 
-|---------|
-|mooi man |
-|         |
-|super tof|
-|---------|
+| Mooi man      | Super tof     | 
+| ------------- |:-------------:| 
+| prachtig      |               | 
+|               |               |   
+|               |               |   
